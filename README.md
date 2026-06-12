@@ -334,4 +334,6 @@ Stratil, J. M., Biallas, R. L., Movsisyan, A., Oliver, K., & Rehfuess, E. A. (20
 
 创作者：毛誉霖、李世裕、宋淑平、张玉玲
 
-指导老师：张晨峰宋雅君
+作者单位：华东理工大学社会与公共管理学院
+
+指导老师：张晨峰、宋雅君
